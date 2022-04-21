@@ -1,0 +1,2 @@
+# Manual-Testing-Course
+Pentagon space is a training establishment in Bangalore. We give Software Testing Course and we train our students with alternate points of view with 620 Hours of concentrated preparing, Career Talks by industry experts,5 Realtime projects, advantageous gathering timings,special bootcamp,periodic bogus and appraisals, Get ready by ensured coaches, Guaranteed 100+ drive open doors, Interview unequivocal preparing meetings, World class framework, One to one tutoring meeting.https://pentagonspace.in/software-testing
